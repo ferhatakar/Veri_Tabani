@@ -1,1 +1,1 @@
-# Veri_Taban-
+# Veri_Tabani Dersi Notları
